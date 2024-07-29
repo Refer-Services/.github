@@ -18,7 +18,7 @@ Refer Services connects Stanford alumni with their ideal job opportunities and h
 
 ## Our Impact 🌍
 - **300+ Organizations:** Partnered with us. 🤝
-- **7,000+ Job Openings:** Available through our network. 📋
+- **23,000+ Job Openings:** Available through our network. 📋
 
 Join us in connecting Stanford alumni to their ideal careers and helping organizations find the best talent. 🌐
 
